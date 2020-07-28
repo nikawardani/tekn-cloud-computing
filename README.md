@@ -1,1 +1,0 @@
-# tekn-cloud-computing
